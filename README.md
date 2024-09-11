@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://amarnathone2.io)
+[![MasterHead](https://fusion.works/wp-content/uploads/2023/01/ezgif-4-3288abc425.gif)](https://amarnathone2.io)
 <h1 align="center">Hi 👋, I'm Amarnath</h1>
 <h3 align="left">Connect with me:</h3>
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/-UygBh3nnfEAAAAC/coding.gif>
